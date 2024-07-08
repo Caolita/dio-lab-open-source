@@ -2,6 +2,7 @@
 # Olá, eu sou Eliana Vicente (Caolita) 
 
 Tecnologa em Análise e Desenvolvimento de Sistemas.
+Tecnologa em Gestão de Produção Industrial.
 
 Me encontre
 
